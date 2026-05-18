@@ -1,4 +1,4 @@
-# 
+# elite bot de negociação Deribit plugins é o melhor bot de negociação Deribit plugins com monitoramento de preços e negociação perpétua. Seguro, confiável e otimizado para
 
 
 
